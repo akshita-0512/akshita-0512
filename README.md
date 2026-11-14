@@ -35,6 +35,7 @@
 
 ## 🔗 Let’s Connect
 - 🐙 GitHub: https://github.com/akshita-0512
+- 💼 LinkedIn:https://www.linkedin.com/in/akshita-nigam-22024b397/
 
 ✨ Still learning. Still experimenting. Still showing up.
 
